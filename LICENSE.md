@@ -1,4 +1,4 @@
-# 
+# Vegas Pro for PC | Vegas Pro for Windows professional Preset: real-time-preview & batch-processing offers the most advanced Vegas Pro for PC | Vegas Pro for Windows preset, with
 
 
 
